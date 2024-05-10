@@ -381,7 +381,17 @@ In modern times, the temple is maintained and administered by the Hindu Religiou
 
 
 ## OUTPUT
+![MY CITY](https://github.com/indrajasukumar/NearMe/assets/145115195/0b95e525-3118-4c28-b392-413ae88960a0)
 
+![HALWA](https://github.com/indrajasukumar/NearMe/assets/145115195/921586cd-7464-4c1e-a61f-f7000dc655c5)
+
+![KALAKKADU](https://github.com/indrajasukumar/NearMe/assets/145115195/1b7391dd-3d9b-4709-825c-370e89b953f8)
+
+![FORT](https://github.com/indrajasukumar/NearMe/assets/145115195/dddfa168-da01-480b-aff1-705c6f452a4c)
+
+![DAM](https://github.com/indrajasukumar/NearMe/assets/145115195/0ccdaff8-a04d-4c1a-907f-6bd2ab127bbc)
+
+![NELLAIAPPAR](https://github.com/indrajasukumar/NearMe/assets/145115195/01b1fd6a-80ed-4f51-8234-738c10ea4b76)
 
 
 
